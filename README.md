@@ -1,4 +1,4 @@
-# Personal Portfolio - Hari Sai Parasa
+# Personal Portfolio - Jaya Chandra Sai Kotapati.
 
 ## About
 
